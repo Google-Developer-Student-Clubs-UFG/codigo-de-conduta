@@ -1,4 +1,4 @@
-# Código de Conduta GDSC UFG
+# Código de Conduta | GDSC UFG
  
 <p align="center">
   <img src="https://user-images.githubusercontent.com/6981085/157594665-2a8c6e7b-ed23-4315-9f9c-4cb18a2dd877.png">
