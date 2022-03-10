@@ -58,7 +58,7 @@ Acreditamos em um ambiente onde todas se sintam bem-vindas e possam compartilhar
 
 **Online:**
 
-Se você sofrer algum tipo de abuso, assédio, discriminação, ou se sentir insegura, fale com o Lead (Wendel Marques). Se  o Lead for a pessoa que você quer reportar, entre em contato com a Amanda Mazini (Gerente de Comunidade, Brasil) e Rodrigo Akira (Líder Regional - Brasil).
+Se você sofrer algum tipo de abuso, assédio, discriminação, ou se sentir insegura, fale com o Wendel Marques (Lead do DSC UFG). Se  o Lead for a pessoa que você quer reportar, entre em contato com a Amanda Mazini (Gerente de Comunidade, Brasil) ou Rodrigo Akira (Líder Regional, Brasil).
 
 **Eventos Presenciais:**
 
